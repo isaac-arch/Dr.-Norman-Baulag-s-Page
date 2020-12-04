@@ -1,1 +1,0 @@
-# Dr.-Norman-Baulag-s-Page
